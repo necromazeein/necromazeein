@@ -3,7 +3,7 @@
 
 <br><br>
 
-[**s**traw](https://mazeerie.straw.page/) ⠀ ⠀  ⠀ ⠀ [**a**ta](https://mazeermaz.atabook.org/)‎‎ ⠀ ⠀  ⠀ ⠀ [**p**rns.cc](https://pronouns.cc/@moldymazee)
+### [**s**traw](https://mazeerie.straw.page/) ⠀ ⠀  ⠀ ⠀ [**a**ta](https://mazeermaz.atabook.org/)‎‎ ⠀ ⠀  ⠀ ⠀ [**p**rns.cc](https://pronouns.cc/@moldymazee)
 
 <sub> [val.](https://github.com/mjjspyt) don't make me pull out *the* image. </sub>
 
