@@ -7,6 +7,6 @@
 
 <sub> [val.](https://github.com/mjjspyt) don't make me pull out *the* image. </sub>
 
-<sup> ok well anyways,, placeholder github repo until i actually decide what to make.. or what to draw, #sigh </sup>
+<sup> ok well anyways,, placeholder repository until i actually decide what to make.. or what to draw, #sigh </sup>
 
 <img src="https://i.postimg.cc/tRf2XszG/val-i-will-eat-you.png" width=260 align="center">
